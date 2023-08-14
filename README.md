@@ -24,4 +24,4 @@ This big change in my path not only let me follow my passion, but also gave me a
 
 ## Get in Touch! 📝
 - [LinkedIn](https://www.linkedin.com/in/franco-silva-flores-389b69265/)
-- ✉️ fraco2208silva@gmail.com
+- ✉️ franco2208silva@gmail.com
